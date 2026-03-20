@@ -5,4 +5,4 @@ lch公司 主機檔
 || adad ||
 
 
-# [https://www.youtube.com/watch?v=dQw4w9WgXcQ](不堪入目的字眼)
+# [不堪入目的字眼](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
